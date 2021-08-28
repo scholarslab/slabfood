@@ -7,7 +7,7 @@ Water in a bowl in the fridge (just needs to submerge the cooked bob in it for 2
 
 ### Drink to contain boba
 Tall glass to drink from (e.g. ~16oz glass or larger)  
-Wide straw (to fit boba; normal straws won't fit them)  
+Wide straw (to fit boba; normal straws won't fit them; [for example](https://www.amazon.com/gp/product/B07RY765XD))  
 I've been using a mix of regular-strength coffee (made in a drip machine and previously cooled off completely in my fridge; have been keeping a mason jar full in there), whole milk, and sometimes sugar (e.g. 1-2 tsp). I've seen many recipes have you stir the cooked boba in a bowl of sugar or honey before adding them to the drink, but I have not done this, and I usually don't add any sugar as it tastes good without it. You could also use some mixture of: concentrated cold coffee, caffeinated or herbal tea, fake milk, fruit juice, sweeteners.
 
 ## Instructions
