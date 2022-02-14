@@ -14,6 +14,7 @@ brandywine roasters decaf coffee
 recluse roasters decaf coffee  
 [lots of other teas/coffees?]  
 Coffee Coke
+flash frozen coffee vs same coffee not flash frozen
 
 # other slab foods
 Do we want to include things folks brought in to share but we didn't do a formal taste-testing get together? e.g. homemade gummies (Ammon), potlucks, holiday dessert sharing  
